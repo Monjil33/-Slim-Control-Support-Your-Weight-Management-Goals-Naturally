@@ -84,7 +84,7 @@ Slim &amp; Control is a powerful fiber-based formula designed to support healthy
       “Finally found something that curbs my cravings without side effects!” – <em>Anna M.</em>
     </blockquote>
 
-    <a href="YOUR_AFFILIATE_LINK" class="cta">🔥 Claim Your Exclusive Offer Now</a>
+    <a href="https://track.cba4b.com//click/ahLLLIbx" class="cta">🔥 Claim Your Exclusive Offer Now</a>
   </div>
 
   <footer>
